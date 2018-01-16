@@ -1,0 +1,1 @@
+# js_group_2-homework_52-baigazy_torobek_uulu
